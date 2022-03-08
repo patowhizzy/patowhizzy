@@ -1,0 +1,8 @@
+- My name is Patrick Anthony Okon
+-</Python, Django, Css, html>
+- Software developer
+-web developer
+-Graphics designer
+- how to reach me👇
+-patrickokon10@gmail.com
+-+2348025633547
